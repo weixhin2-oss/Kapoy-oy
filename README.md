@@ -1,2 +1,0 @@
-# Kapoy-oy
-Hahahsyt
